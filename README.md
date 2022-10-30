@@ -11,9 +11,14 @@
 
 
 
+هذا الاختصار قام بتطويره هذا المبدع 
+‏@Shadows_AAB 
+[https://twitter.com/shadows_aab/status/1586367663517110274?s=46&t=huzbt6ZGH3y8phZ5LsxnsA
+](url)
+
+
 
 الغرض من أرشفة هذي الاختصار لكي يستفيد منها الجميع.. 
-
 
 تحياتي
 ‏⁦‪@TeacheriP‬⁩ 
