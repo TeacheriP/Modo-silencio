@@ -19,6 +19,8 @@ https://twitter.com/shadows_aab/status/1586367663517110274?s=46&t=huzbt6ZGH3y8ph
 
 
 
+
+
 الغرض من أرشفة هذي الاختصار لكي يستفيد منها الجميع.. 
 تحياتي
 ‏⁦‪@TeacheriP‬⁩ 
